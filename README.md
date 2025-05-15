@@ -1,2 +1,2 @@
-## Hey, welcome on my profile
+## Hey, welcome to my profile
 Currently there is nothing to see here
